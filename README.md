@@ -5,5 +5,5 @@
           he 16
         selfcest enthusist + selfshipper     usually in whispers/party :P
           i like ninjago, kingdom hearts, seraph of the end, and naruto
-          rulan is my goat & niko is nephew chud
+          niko is my nephew chud & mazz is gay morro
 </pre>
