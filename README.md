@@ -1,5 +1,5 @@
 <pre>
-          he/neos, 16
+          he/neos
         selfcest enthusist    usually in whispers/party :P
                     Ventus KH fictkin #cringe
           
